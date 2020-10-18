@@ -1,1 +1,1 @@
-# cross-check-issue
+Здравствуйте, это студент RSSchool, работу которого вы проверяли, свяжитесь, пожалуйста, со мной в discord: xHunter#7849, или Telegram: @Ribalich
